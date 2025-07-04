@@ -15,4 +15,4 @@
 
 本站采用CDN加速与懒加载技术，保证访问速度和播放流畅性。界面简洁，无冗余广告，让你可以安静专注地享受内容。如果你正在寻找一个真正稳定、更新快、界面干净、内容丰富的日本AV免费平台，这里会是你的理想之选。欢迎收藏，随时回来发现更多精彩内容。请遵守当地法律法规，合理使用本站资源。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/bkpp20250704/bkpp1 ）</span>
